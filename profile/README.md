@@ -7,5 +7,5 @@ Almaftuchin, LLC telah mengalami pertumbuhan signifikan dalam beberapa tahun ter
 
 ### Thanks to:
 - [Babe M](#)
-- [Maknyak](#)
+- [Maknyak P](#)
 - [Yenni M](#)
